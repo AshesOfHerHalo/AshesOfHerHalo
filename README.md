@@ -1,15 +1,3 @@
-<p align="center">
-  <img src="https://capsule-render.vercel.app/api?type=waving&color=red&height=180&section=header&text=AshesOfHerHalo&fontSize=40&fontColor=ffffff" />
-</p>
-
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&style=flat-square&color=red" />
-</p>
-
-<p align="center">
-  ✨ <em>wip.</em> ✨
-</p>
-
 
 <p align="center">
   <a href="https://git.io/typing-svg">
