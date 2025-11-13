@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="https://capsule-render.vercel.app/api?type=waving&color=red&height=180&section=header&text=Beginner%20artist%20and%20Cosplayer&fontSize=30&fontColor=ffffff" />
+</p>
 
 <p align="center">
   <a href="https://git.io/typing-svg">
