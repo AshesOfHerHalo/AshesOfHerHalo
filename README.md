@@ -1,5 +1,6 @@
 <p align="center">
-  <img src="https://capsule-render.vercel.app/api?type=waving&color=red&height=180&section=header&text=%2A%E0%A5%B8%E2%9C%A9%E2%80%95%E2%82%A5%CB%8A%E0%BD%9CBeginner%20artist%20and%20C
+  <img src="https://capsule-render.vercel.app/api?type=waving&color=red&height=180&section=header&text=Beginner%20artist%20and%20Cosplayer&fontSize=30&fontColor=ffffff" />
+</p>
 
 
 <p align="center">
