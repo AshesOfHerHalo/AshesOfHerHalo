@@ -2,13 +2,11 @@
   <img src="https://capsule-render.vercel.app/api?type=waving&color=red&height=180&section=header&text=Beginner%20artist%20and%20Cosplayer&fontSize=30&fontColor=ffffff" />
 </p>
 
-
 <p align="center">
   <a href="https://git.io/typing-svg">
     <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=710A0A&width=735&lines=cuddle+me+freely+if+I'm+alone+‼️" alt="Typing SVG" />
   </a>
 </p>
-
 
 <div align="center"> 
  
