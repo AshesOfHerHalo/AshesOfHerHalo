@@ -13,6 +13,9 @@
  
  <img width="800" height="575" alt="image" src="https://i.pinimg.com/736x/60/62/94/606294662a262c7b6073263f734fc774.jpg" />
 
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&style=flat-square&color=red" alt="Profile views counter for AshesOfHerHalo" />
-</p>
+<div align="center">
+  <img 
+    src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&style=flat-square&color=red" 
+    alt="Profile views counter for AshesOfHerHalo"
+  />
+</div>
