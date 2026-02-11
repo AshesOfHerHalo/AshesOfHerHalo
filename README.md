@@ -13,5 +13,3 @@
  
  <img width="800" height="575" alt="image" src="https://i.pinimg.com/736x/60/62/94/606294662a262c7b6073263f734fc774.jpg" />
 
-![Alt Text](path/to/your/image.png)
-![1356764](https://github.com/user-attachments/assets/359b8200-38ca-495b-9ab2-f4bffad7228e)
