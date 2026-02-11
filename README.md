@@ -1,6 +1,6 @@
 <p align="center">
-  <img src="https://capsule-render.vercel.app/api?type=waving&color=red&height=180&section=header&text=Beginner%20artist%20and%20Cosplayer&fontSize=30&fontColor=ffffff" />
-</p>
+ <img width="2048" height="327" alt="immagine" src="https://github.com/user-attachments/assets/3bab12d5-2bd2-4d37-8399-658636c31632" />
+
 
 <p align="center">
   <a href="https://git.io/typing-svg">
