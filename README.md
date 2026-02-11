@@ -8,8 +8,4 @@
 </p>
 
 
-<div align="center"> 
- 
- <img width="800" height="575" alt="image" src="https://i.pinimg.com/736x/60/62/94/606294662a262c7b6073263f734fc774.jpg" />
- 
 <img width="2808" height="2309" alt="Senza titolo 103_20260211172758" src="https://github.com/user-attachments/assets/7911c7fe-cca6-4c03-b6c1-dbf611fd9874" />
