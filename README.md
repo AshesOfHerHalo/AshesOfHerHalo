@@ -18,3 +18,8 @@
 
 
 $${\color{#d1bfc3}please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp}$$
+
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=YOUR_USERNAME&color=d1bfc3&style=flat" />
+</p>
