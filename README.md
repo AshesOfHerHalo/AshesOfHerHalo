@@ -18,4 +18,6 @@
 
 $${\color{#d1bfc3}please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp}$$
 
-![](https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=d1bfc3&style=plastic&label=🦴)
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=d1bfc3&style=plastic&label=🦴" />
+</p>
