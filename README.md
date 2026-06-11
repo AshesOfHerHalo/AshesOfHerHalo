@@ -18,5 +18,4 @@
 
 $${\color{#d1bfc3}please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp}$$
 
-<p align="center">
 ![](https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=d1bfc3&style=plastic&label=🦴)
