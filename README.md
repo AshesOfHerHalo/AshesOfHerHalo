@@ -4,7 +4,7 @@
 
 <p align="center">
   <a href="https://ashesofherhalo.straw.page/">
-<img width="260" height="260" alt="DDF77BD9-DFCC-4AE8-B3D0-9AB7EA0BEB06" src="https://github.com/user-attachments/assets/04088960-9e45-44e1-b113-d4691cc22ccc" />
+<img width="100" height="100" alt="DDF77BD9-DFCC-4AE8-B3D0-9AB7EA0BEB06" src="https://github.com/user-attachments/assets/04088960-9e45-44e1-b113-d4691cc22ccc" />
 
 
     
