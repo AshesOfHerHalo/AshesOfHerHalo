@@ -1,5 +1,6 @@
 <p align="center">
-  <img width="800" height="400" alt="Senza titolo 2_20260611022611" src="https://github.com/user-attachments/assets/9e3ab4c4-0a6e-4a8b-b2dd-3ea18582a529" />
+ <img width="800" height="400" alt="Senza titolo 2_20260611022611" src="https://github.com/user-attachments/assets/930abf81-849a-4e34-9643-8f63e671cd8b" />
+
 
 <p align="center">
   <a href="https://ashesofherhalo.straw.page/">
