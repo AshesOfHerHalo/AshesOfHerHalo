@@ -10,7 +10,7 @@
 
 <span>
   <img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif" width="120">
-  <img src="https://file.garden/akznOd94TlocQojJ/voidpatpat.gif" width="120">
+  <img src="https://file.garden/akznOd94TlocQojJ/voidpetpet.gif" width="120">
 </span>
 <br>
 
