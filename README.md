@@ -9,6 +9,6 @@
 <img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> <img width="26" height="21" alt="wing 2" src="https://github.com/user-attachments/assets/ac52070b-48e1-4141-a40c-c2c3c954b2d2" />
 
 <br> 
- ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎<img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif" alt="Aurora Pat Pat">  <img src="https://file.garden/akznOd94TlocQojJ/voidpatpat.gif" alt="Void Pat Pat">
+ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎<img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif" alt="Aurora Pat Pat"><img src="https://file.garden/akznOd94TlocQojJ/voidpatpat.gif" alt="Void Pat Pat">
 
   ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ꨄ﹐‎ [@NorthernShine](https://github.com/NorthernShine)
