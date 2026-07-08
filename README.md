@@ -1,23 +1,9 @@
-<p align="center">
- <img width="800" height="400" alt="Senza titolo 2_20260611022611" src="https://github.com/user-attachments/assets/930abf81-849a-4e34-9643-8f63e671cd8b" />
+<img align="left" src="https://file.garden/akznOd94TlocQojJ/ezgif.com-gif-maker.gif" witdh="384" height="500">
 
-
-<p align="center">
-  <a href="https://ashesofherhalo.straw.page/">
-<img width="100" height="100" alt="DDF77BD9-DFCC-4AE8-B3D0-9AB7EA0BEB06" src="https://github.com/user-attachments/assets/04088960-9e45-44e1-b113-d4691cc22ccc" />
-
-
-    
-  </a>
-  <br><br>
-<p align="center">
-<b>౿ ⠀ . ⠀ strawpage ⠀ . ⠀ ౿</b>
-<p align="center">
-  <sub><i>(click the image)</i></sub>
-</p>
-
-$${\color{#d1bfc3}please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp}$$
-
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=d1bfc3&style=plastic&label=🦴" />
-</p>
+<br> <br> <br> <br> <br> <br> <br> <br>
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎✦︎ ⸝⸝  ‎[strawpage](https://ashesofherhalo.straw.page/)   .ᐟ 
+<br> <br>
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ $${\color{#dbdce2}ʚɞ ◟please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp ⋮   𓏼}$$
+<br> <br>
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ <img width="26" height="21" alt="wing 1" src="https://github.com/user-attachments/assets/0df5b7fa-0e29-4863-9629-a6797d289dc3" />
+<img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> <img width="26" height="21" alt="wing 2" src="https://github.com/user-attachments/assets/ac52070b-48e1-4141-a40c-c2c3c954b2d2" />
