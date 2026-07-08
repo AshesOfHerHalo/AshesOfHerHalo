@@ -1,6 +1,6 @@
 <img align="left" src="https://file.garden/akznOd94TlocQojJ/ezgif.com-gif-maker.gif" witdh="384" height="500">
 
-<br> <br> <br> <br>
+<br> <br> <br> 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎✦︎ ⸝⸝  ‎[strawpage](https://ashesofherhalo.straw.page/)   .ᐟ 
 <br> <br>
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ $${\color{#dbdce2}ʚɞ ◟please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp ⋮   𓏼}$$
@@ -17,3 +17,5 @@
   ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎  [@NorthernShine](https://github.com/NorthernShine) 　[@horroryaoi](https://github.com/horroryaoi)
   
  ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ $${\color{#dbdce2}♯ ◟gifs⠀made⠀by⠀me.ᐟ}$$
+ 
+ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ <sub>this looks ugly on a phone oml</sub>
