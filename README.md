@@ -2,7 +2,8 @@
 
 <br> <br> <br> 
 
- ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ <sub>this is my OC Dakota, please don't claim her, remake her in Pony Town, or copy her. Fan art is welcome tho!</sub>
+ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ <sub>this is my OC Dakota, please don't claim her, remake her in Pony Town, or copy her. 
+ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ Fan art is welcome tho!</sub>
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎✦︎ ⸝⸝  ‎[strawpage](https://ashesofherhalo.straw.page/)   .ᐟ 
 <br> <br>
