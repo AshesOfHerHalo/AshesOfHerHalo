@@ -11,10 +11,11 @@
 <span>
   <img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif" width="120">
   <img src="https://file.garden/akznOd94TlocQojJ/voidpetpet.gif" width="120">
+  <img src="https://file.garden/akznOd94TlocQojJ/Silverpetpet.gif" width="120">
 </span>
 <br>
 
-  ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎  [@NorthernShine](https://github.com/NorthernShine) 　[@horroryaoi](https://github.com/horroryaoi)
+  ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎  [@NorthernShine](https://github.com/NorthernShine) 　[@horroryaoi](https://github.com/horroryaoi)  　 [@infugue](https://github.com/infugue)
   
  ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ $${\color{#dbdce2}♯ ◟gifs⠀made⠀by⠀me.ᐟ}$$
  
