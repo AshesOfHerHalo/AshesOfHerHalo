@@ -6,9 +6,7 @@
 
 ‎✦︎ ⸝⸝  ‎[strawpage](https://ashesofherhalo.straw.page/)   .ᐟ 
 <br> <br>
-
 ‎$${\color{#dbdce2}ʚɞ ◟please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp ⋮   𓏼}$$
-
 <br> <br>
 ‎<img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> 
 
@@ -21,5 +19,6 @@
 <br>
 
 <sub>[@NorthernShine](https://github.com/NorthernShine)　[@horroryaoi](https://github.com/horroryaoi)　[@infugue](https://github.com/infugue)　[@PepsiShark](https://github.com/PepsiShark)</sub>
- 
+
+$${\color{#dbdce2}♯ ◟gifs⠀made⠀by⠀me.ᐟ}$$
 <sub>this looks ugly on a phone oml</sub>
