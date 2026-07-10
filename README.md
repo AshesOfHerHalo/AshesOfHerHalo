@@ -2,13 +2,13 @@
 
 <br> <br> 
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   <sub>this is my OC Dakota, please don't claim her, remake her in Pony Town, or copy her. fanart is welcome tho!</sub>
+ <sub>this is my OC Dakota, please don't claim her, remake her in Pony Town, or copy her. fanart is welcome tho!</sub>
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎✦︎ ⸝⸝  ‎[strawpage](https://ashesofherhalo.straw.page/)   .ᐟ 
+‎✦︎ ⸝⸝  ‎[strawpage](https://ashesofherhalo.straw.page/)   .ᐟ 
 <br> <br>
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  $${\color{#dbdce2}ʚɞ ◟please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp ⋮   𓏼}$$
+‎$${\color{#dbdce2}ʚɞ ◟please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp ⋮   𓏼}$$
 <br> <br>
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> 
+‎<img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> 
 
 <span>
   <img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif" width="70">
@@ -18,8 +18,8 @@
 </span>
 <br>
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <sub>[@NorthernShine](https://github.com/NorthernShine)　[@horroryaoi](https://github.com/horroryaoi)　[@infugue](https://github.com/infugue)　[@PepsiShark](https://github.com/PepsiShark)
+<sub>[@NorthernShine](https://github.com/NorthernShine)　[@horroryaoi](https://github.com/horroryaoi)　[@infugue](https://github.com/infugue)　[@PepsiShark](https://github.com/PepsiShark)
   
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  $${\color{#dbdce2}♯ ◟gifs⠀made⠀by⠀me.ᐟ}$$
+$${\color{#dbdce2}♯ ◟gifs⠀made⠀by⠀me.ᐟ}$$
  
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <sub>this looks ugly on a phone oml</sub>
+<sub>this looks ugly on a phone oml</sub>
