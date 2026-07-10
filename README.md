@@ -4,15 +4,13 @@
 
  ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ <sub>this is my OC Dakota, please don't claim her, remake her in Pony Town, or copy her.</sub>
  
- ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ <sub>fanart is welcome tho!</sub>
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ <sub>fanart is welcome tho!</sub>
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎✦︎ ⸝⸝  ‎[strawpage](https://ashesofherhalo.straw.page/)   .ᐟ 
 <br> <br>
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ $${\color{#dbdce2}ʚɞ ◟please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp ⋮   𓏼}$$
 <br> <br>
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ <img width="26" height="21" alt="wing 1" src="https://github.com/user-attachments/assets/0df5b7fa-0e29-4863-9629-a6797d289dc3" />
-<img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> <img width="26" height="21" alt="wing 2" src="https://github.com/user-attachments/assets/ac52070b-48e1-4141-a40c-c2c3c954b2d2" />
-
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> 
 <span>
   <img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif" width="70">
   <img src="https://file.garden/akznOd94TlocQojJ/voidpetpet.gif" width="70">
