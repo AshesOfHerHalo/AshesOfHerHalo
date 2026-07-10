@@ -21,3 +21,14 @@
 $${\color{#dbdce2}♯ ◟gifs⠀made⠀by⠀me.ᐟ}$$
 <br>
 <sub>this looks ugly on a phone oml</sub>
+
+<br><br><br>
+
+<p align="center">
+  <img src="https://file.garden/akznOd94TlocQojJ/Dakota%20baloons.png" alt="Dakota balloons" width="220">
+</p>
+
+<p align="center">
+  THANKS TO MY BEST FRIEND FOR MAKING THIS 🥹
+  <a href="https://github.com/NorthernShine">@NorthernShine</a>
+</p>
