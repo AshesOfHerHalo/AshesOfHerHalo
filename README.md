@@ -29,6 +29,6 @@ $${\color{#dbdce2}♯ ◟gifs⠀made⠀by⠀me.ᐟ}$$
 </p>
 
 <p align="center">
-  THANKS TO MY BEST FRIEND FOR MAKING THIS 🥹
+  THANKS TO MY BEST FRIEND FOR MAKING THIS DRAWING ↑ 🥹
   <a href="https://github.com/NorthernShine">@NorthernShine</a>
 </p>
