@@ -6,7 +6,7 @@
 
 ‎✦︎ ⸝⸝  ‎[strawpage](https://ashesofherhalo.straw.page/)   .ᐟ 
 
-‎$${\color{#dbdce2}ʚɞ ◟please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp ⋮   𓏼}$$
+‎$${\color{#dbdce2}ʚɞ ◟please⠀read⠀my⠀dni⠀list⠀in⠀my⠀sp ⋮ 𓏼}$$
 
 ‎<img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> 
 
