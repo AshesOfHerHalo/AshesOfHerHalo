@@ -17,7 +17,7 @@
 </span>
 <br>
 
-<sub>[@NorthernShine](https://github.com/NorthernShine)  [@horroryaoi](https://github.com/horroryaoi)　[@infugue](https://github.com/infugue)　[@PepsiShark](https://github.com/PepsiShark) [@yubelsrevenge](https://github.com/yubelsrevenge)</sub>
+<sub>[@NorthernShine](https://github.com/NorthernShine)　[@horroryaoi](https://github.com/horroryaoi)　[@infugue](https://github.com/infugue)　[@PepsiShark](https://github.com/PepsiShark)　[@yubelsrevenge](https://github.com/yubelsrevenge)</sub>
 
 $${\color{#dbdce2}♯ ◟gifs⠀made⠀by⠀me.ᐟ}$$
 <br>
