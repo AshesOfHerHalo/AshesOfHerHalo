@@ -6,8 +6,9 @@
 
 ‎✦︎ ⸝⸝  ‎[strawpage](https://ashesofherhalo.straw.page/)   .ᐟ 
 
-‎<img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> 
+<img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> 
 
+‎
 <span>
   <img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif" width="70">
   <img src="https://file.garden/akznOd94TlocQojJ/voidpetpet.gif" width="70">
