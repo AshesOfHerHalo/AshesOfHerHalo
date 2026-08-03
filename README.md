@@ -6,7 +6,7 @@
 
 ‎✦︎ ⸝⸝  ‎[strawpage](https://ashesofherhalo.straw.page/)   .ᐟ 
 
-<img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=🦴"> 
+<img src="https://komarev.com/ghpvc/?username=AshesOfHerHalo&color=bbbebe&style=plastic&label=%F0%9F%A6%B4&v=2" alt="Profile views">
 
 ‎
 <span>
