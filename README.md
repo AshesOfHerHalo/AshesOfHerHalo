@@ -11,14 +11,13 @@
 ‎
 <span>
   <img src="https://file.garden/akznOd94TlocQojJ/aurorapatpat.gif" width="70">
-  <img src="https://file.garden/akznOd94TlocQojJ/voidpetpet.gif" width="70">
   <img src="https://file.garden/akznOd94TlocQojJ/Silverpetpet.gif" width="70">
   <img src="https://file.garden/akznOd94TlocQojJ/Jackpetpet.gif" width="70">
    <img src="https://file.garden/akznOd94TlocQojJ/Jaden%20petpet.gif" width="70">
 </span>
 <br>
 
-<sub>[@NorthernShine](https://github.com/NorthernShine)　[@horroryaoi](https://github.com/horroryaoi)　[@infugue](https://github.com/infugue)　[@PepsiShark](https://github.com/PepsiShark)　[@yubelsrevenge](https://github.com/yubelsrevenge)</sub>
+<sub>[@NorthernShine](https://github.com/NorthernShine)　[@infugue](https://github.com/infugue)　[@PepsiShark](https://github.com/PepsiShark)　[@yubelsrevenge](https://github.com/yubelsrevenge)</sub>
 
 $${\color{#dbdce2}♯ ◟gifs⠀made⠀by⠀me.ᐟ}$$
 <br>
